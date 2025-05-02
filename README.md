@@ -37,7 +37,7 @@
 
 ###
 
-<img align="right" height="150" src="[https://media1.tenor.com/m/WsDRTInPyNkAAAAC/laptop.gif](https://media1.tenor.com/m/WsDRTInPyNkAAAAC/laptop.gif)"  />
+<img align="right" height="150" src="https://media1.tenor.com/m/WsDRTInPyNkAAAAC/laptop.gif"  />
 
 ###
 
